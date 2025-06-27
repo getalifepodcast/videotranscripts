@@ -1,8 +1,36 @@
-# **Transcription: Get A Life Ep.120 with Guest Isaac Foster Part 1**
+# Get A Life Ep.120 with Guest Isaac Foster Part 1
 
-Source: https://www.youtube.com/watch?v=B0ozXLJpJto  
-Date: 2025-06-21 11:59  
-Segments alignés: 231
+<iframe width="560" height="315" src="https://www.youtube.com/embed/B0ozXLJpJto" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
+
+## Summary
+
+TRIGGER WARNING! This podcast contains discussions on physical abuse, sexual abuse, and suicide. Viewer discretion is advised.
+Isaac's story originates in New Zealand with an abusive father that he couldn't escape from. In this inspiring story, Isaac shares what it was like growing up in the PBCC, where he not only suffered physical abuse but also sexual abuse. He describes his journey with the priests and how he was confined to a tiny apartment for over a year. The biggest takeaway from this harrowing story is the way Isaac found a way to stand back up and create an incredible life for himself. His messages to others in a predicament like he was and to the insiders will have you in tears with his bravery and heartfelt plea to the Plymouth Brethren Christian Church. What would life have been like had the PBCC taught sex education and consent? What could have been prevented had there been anger management classes for his father and accountability? How do priests get away with heartless treatment and confinement? This is a story that would sure spark some change inside the PBCC if they were listening to the pain of each and every survivor that comes forward. Part 1 of Isaac's story is just the lead up to a letter to Bruce Hales in Part 2. Stay tuned!
+Link for insiders -
+To share your story or be a guest on the show, email info.getalife@proton.me
+Get a Life Paypal donations -
+Get a Life GoFundMe-
+PayPal link for USA-
+Olive Leaf Network-
+Thinking of Leaving Pamphlet and resources -
+Link to Anchor/Spotify-
+Preston Down Trust Decision-
+Aberdeen incident-
+If we walk in the light letters-
+Admin/Legal email address:
+Stouffville-GAL@protonmail.com
+Office address:
+22 Braid Bend
+Stouffville ON
+L4A 1R7
+
+*This document forms part of a searchable public testimony archive about life inside—and after—the PBCC.*
+
+## How to use this transcript
+
+The transcript below contains timestamp hyperlinks. Click any timestamp word to jump to that section of the video. This transcript was done via a script, so it may contain innacuracies. Please refer to the video to get exact quotes.
+
+## Transcript
 
 ### [**Cheryl Bawtinheimer**](https://www.youtube.com/watch?v=B0ozXLJpJto&t=77s)
 
@@ -711,3 +739,46 @@ To share your story or be a guest on the show, email info.getalife@proton.me.
 Check out www.get-a-life.net for Get-A-Life merchandise, books, and ways to support or get support.
 
 Please remember to like this video, subscribe to Get-A-Life, and comment.
+## Links
+
+* https://www.dropbox.com/scl/fi/ivjbxa0606lh1srqy0c0v/34897-120.mp4?rlkey=sljho2kpe6l0qrf3ljo0mb13b&st=7slearek&dl=0
+* https://www.paypal.me/getalifepodcast
+* https://gofund.me/614bcd06
+* https://www.paypal.com/pools/c/8Tz4n35OJ8
+* https://oliveleaf.network/
+* https://oliveleaf.network/resources/
+* https://spotifyanchor-web.app.link/e/G6sjHA2xHwb
+* http://www.charitycommission.gov.uk/media/591398/preston_down_trust_full_decision.pdf
+* https://drive.google.com/file/d/1riImgAqwaqGwjYq6vRQIr4_jscJA0eQN/view?usp=sharing
+* https://drive.google.com/file/d/14WlgJladl1r95YGxW0FbZ0prYfjlg7FU/view?usp=sharing
+
+## Note on Terminology
+
+Throughout this transcript, references to the "Brethren," "Exclusive Brethren," or "PBCC" refer specifically to the group now formally known as the Plymouth Brethren Christian Church (PBCC). This sect is part of the wider "Plymouth Brethren" movement.
+
+Despite the historic ambiguity around the sect's name, it can clearly be distinguished from any other "Brethren" group by its unbroken line of leadership succession, as follows:
+
+*   John Nelson Darby (1848–1882) – Seized exclusive control following the 1848 split
+*   Frederick Edward Raven (1882–1903)
+*   James Taylor Sr. (1903–1953)
+*   James Taylor Jr. (1953–1970)
+*   James H. Symington (1970–1987)
+*   John S. Hales (1987–2002)
+*   Bruce D. Hales (2002–present)
+
+
+## Note on PBCC-Linked Organizations
+
+Throughout this transcript, references are made to a range of organizations, businesses, and charities affiliated with the Plymouth Brethren Christian Church (PBCC). The following is a summary of key entities commonly referenced in discussions about the PBCC's structure and influence:
+
+*   **OneSchool Global (OSG)** – A global network of private schools established and operated by the PBCC, with campuses in over 20 countries.
+*   **Universal Business Team (UBT)** – The PBCC's international business support and consulting arm, providing procurement, training, IT, and group services for PBCC businesses and households.
+*   **Campus&Co** – A retail chain managed by PBCC volunteers, to keep membership spending within the PBCC ecosystem.
+*   **The Grace Trust** – The central UK charitable trust of the PBCC, used to receive tax-exempt donations from members and their businesses.
+*   **Rapid Relief Team (RRT)** – The PBCC's emergency and disaster relief organization, generally recognised as a corporate sanitizing and PR initiative.
+*   **Gospel Hall Trusts**  – Legal entities that own and maintain PBCC meeting halls and church properties across various regions.
+*   **Bible & Gospel Trust** – The official publisher and distributor of PBCC-approved religious literature and scriptures.
+
+This summary is provided for clarity, as these organizations are often referenced in connection with PBCC operations, outreach, and influence.
+
+
