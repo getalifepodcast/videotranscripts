@@ -5,15 +5,6 @@
 ## Summary
 
 Dare to question translations of the Bible you are being taught! How deep has the doctrine of Bruce Hales gotten inside the PBCC? Do they choose the word of Bruce over the teachings of the Bible? Do they believe they are the only ones with special light while labelling themselves a Mainstream Christian Church? If King Lemual was not supposed to drink because he's a King and leader, how is it that Bruce Hales feels comfortable drinking excessively as leader of the PBCC group? The Bible tells a husband to love his wife as Christ loves his assembly-does that condone a husband tossing his wife down the stairs? Did you know that in Bruce Hales' eyes, if you're not prosperous-God is not with you?? Join our discussion with special guest Peter Hart as we breakdown some of the fallacy taught to PBCC members. Eye opening discussion is sure to keep you entertained!!
-Contact us at info.getalife@proton.me
-To share your story or be a guest on the show, email info.getalife@proton.me
-Legal email address: stouffvillelegal-gal@protonmail.com
-Links for insiders -
-Leavers GOFUNDME support-
-PayPal link for USA-  Olive Leaf Network-
-Thinking of Leaving Pamphlet and resources -
-Link to Anchor/Spotify-  Preston Down Trust Decision -  Aberdeen incident-
-If we walk in the light letters-
 
 *This document forms part of a searchable public testimony archive about life inside—and after—the PBCC.*
 
