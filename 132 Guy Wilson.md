@@ -8,24 +8,6 @@ Guy Wilson‘s remarkable memory and extensive records take us back to the south
 Guy is not shy of dropping names, and Theo Deacon, Geoff, Alan, Keith and Clive Groombridge, David Worsley, Struan and Moira  Kerr, Stuart Clark and Peter Bedford all come in for a mention.
 Most intriguing of all, Guy shares some stories about Alan Clarkson, formerly of Perth Australia, and now from The Hague. Alan may have a few matters to clear, come the weekend.
 Finally, Guy has supplied extensive files of interesting letters from that time, which we are sharing in a folder that is linked below.
-Podcast link for insiders -
-Link to all documents, letters, etc
-To share your story or be a guest on the show, email info.getalife@proton.me
-Get a Life Paypal donations -
-Get a Life GoFundMe-
-PayPal link for USA-
-Olive Leaf Network-
-Thinking of Leaving Pamphlet and resources -
-Link to Anchor/Spotify-
-Preston Down Trust Decision-
-Aberdeen incident-
-If we walk in the light letters-
-Admin/Legal email address:
-stouffvillelegal-gal@protonmail.com
-Office address:
-22 Braid Bend
-Stouffville ON
-L4A 1R7
 
 *This document forms part of a searchable public testimony archive about life inside—and after—the PBCC.*
 
