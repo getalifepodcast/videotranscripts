@@ -521,7 +521,7 @@ Yeah, and was that when John Hales was in power or Bruce?
 
 ### [**Cheryl Bawtinheimer**](https://www.youtube.com/watch?v=ZlSbIM-C_oo&t=3917s)
 
-Yeah see I think in the more of the whole assembly widow thing really was up the ladder ranking when Bruce Hales came in right? Yeah, yeah, yeah I don't think John Hales or Mr. Simington would have given it the same kind of credibility as what Bruce Hales is doing. I mean, Bruce knows what he's, Bruce, Bruce is very well aware of what he's doing. He knows, he knows how to schmooze the women and be able to get what he needs.
+Yeah see I think in the more of the whole assembly widow thing really was up the ladder ranking when Bruce Hales came in right? Yeah, yeah, yeah I don't think John Hales or Mr. Symington would have given it the same kind of credibility as what Bruce Hales is doing. I mean, Bruce knows what he's, Bruce, Bruce is very well aware of what he's doing. He knows, he knows how to schmooze the women and be able to get what he needs.
 
 ### [**Ros Atmore**](https://www.youtube.com/watch?v=ZlSbIM-C_oo&t=3944s)
 
