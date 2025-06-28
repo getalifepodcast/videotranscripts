@@ -5,9 +5,6 @@
 ## Summary
 
 Join our special guest Terri Smith, a young woman who was never a member of the PBCC- as she shares her nightmare at the hands of a PBCC owned business.  She was stalked, followed, & harassed by male members of the PBCC. She witnessed sexual assault in the workplace & was a victim of constant abuse & gender discrimination.  Her shocking story was so horrific- abuse at the hands of people who consider themselves to be Christians- it left us shaken to the core and in tears!!
-Link to Anchor/Spotify-
-To share your story or be a guest on the show, contact us at info.getalife@proton.me
-Legal email address: stouffvillelegal-gal@protonmail.com
 
 *This document forms part of a searchable public testimony archive about life inside—and after—the PBCC.*
 
