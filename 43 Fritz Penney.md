@@ -5,10 +5,6 @@
 ## Summary
 
 Another brave young man speaks out about how it feels to be gay in the brethren. Fritz talks openly about how different he felt in a very closed community. He tells a story of bullying through his teenage years and the worthlessness he felt as he realised that he would never fit into the community he was born into. The manner in which Fritz describes how gradually contact with his much loved family ceased will strike a chord with many others that have left. He talks candidly about how he has gained confidence as a person after leaving and shares with us an incredible creative talent that would never have been nurtured within the brethren. This story is a testament to anyone that there is kindness and love in this world, and the freedom to be yourself is liberating.
-To share your story or be a guest on the show, contact us at info.getalife@proton.me
-Legal email address: stouffvillelegal-gal@protonmail.com
-Links for insiders -
-Link to Anchor/Spotify-
 
 *Every transcript on this site contributes to an expanding collection of survivor accounts and exposes the truth about the PBCC.*
 
