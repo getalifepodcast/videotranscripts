@@ -5,17 +5,6 @@
 ## Summary
 
 We sit down with another PBCC sexual abuse survivor who takes us along her horrific abuse. At age 8, Beth was placed with another family when her parents were confined. What she witnessed and endured left us speechless. She dives into the mistreatment of woman and how it keeps being accepted from generation to generation. Will the PBCC ever realize the amount of abuse that occurs inside their cult? Will they take heed from those of us that had to endure it and make changes? We also clear up the rumor of us being paid to talk!
-Links for insiders -
-To share your story or be a guest on the show, email info.getalife@proton.me
-Legal email address: stouffvillelegal-gal@protonmail.com
-Leavers GOFUNDME support -
-PayPal link for USA-
-Olive Leaf Network-
-Thinking of Leaving Pamphlet and resources -
-Link to Anchor/Spotify-
-Preston Down Trust Decision-
-Aberdeen incident-
-If we walk in the light letters-
 
 *This transcript is preserved as part of an ongoing public archive of first-person testimonies about the Plymouth Brethren Christian Church (PBCC).*
 
