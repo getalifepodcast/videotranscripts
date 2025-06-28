@@ -6,23 +6,6 @@
 
 TRIGGER WARNING! This podcast contains discussions on physical abuse, sexual abuse, and suicide. Viewer discretion is advised.
 Isaac's story originates in New Zealand with an abusive father that he couldn't escape from. In this inspiring story, Isaac shares what it was like growing up in the PBCC, where he not only suffered physical abuse but also sexual abuse. He describes his journey with the priests and how he was confined to a tiny apartment for over a year. The biggest takeaway from this harrowing story is the way Isaac found a way to stand back up and create an incredible life for himself. His messages to others in a predicament like he was and to the insiders will have you in tears with his bravery and heartfelt plea to the Plymouth Brethren Christian Church. What would life have been like had the PBCC taught sex education and consent? What could have been prevented had there been anger management classes for his father and accountability? How do priests get away with heartless treatment and confinement? This is a story that would sure spark some change inside the PBCC if they were listening to the pain of each and every survivor that comes forward. Part 1 of Isaac's story is just the lead up to a letter to Bruce Hales in Part 2. Stay tuned!
-Link for insiders -
-To share your story or be a guest on the show, email info.getalife@proton.me
-Get a Life Paypal donations -
-Get a Life GoFundMe-
-PayPal link for USA-
-Olive Leaf Network-
-Thinking of Leaving Pamphlet and resources -
-Link to Anchor/Spotify-
-Preston Down Trust Decision-
-Aberdeen incident-
-If we walk in the light letters-
-Admin/Legal email address:
-Stouffville-GAL@protonmail.com
-Office address:
-22 Braid Bend
-Stouffville ON
-L4A 1R7
 
 *Another entry in our growing archive of first-hand accounts from former PBCC members.*
 
