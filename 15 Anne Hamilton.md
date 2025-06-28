@@ -9,14 +9,6 @@ Anne Hamilton takes us through her heart wrenching story of her life that lead h
 Link to Rebecca Stott's memoir In the Days of Rain-
 To share your story or be a guest on the show, contact us at info.getalife@proton.me
 Legal email address: stouffvillelegal-gal@protonmail.com
-Links for insiders -
-Leavers GOFUNDME support-
-PayPal link for USA-
-Olive Leaf Network-  Thinking of Leaving Pamphlet and resources -
-Link to Anchor/Spotify-
-Preston Down Trust Decision-
-Aberdeen incident-
-If we walk in the light letters-
 
 *This page is part of the largest public collection of PBCC leaver testimonies and survivor stories.*
 
