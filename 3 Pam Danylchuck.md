@@ -5,19 +5,6 @@
 ## Summary
 
 Pam Danylchuk dives in on what it was like to leave the cult and their misogynistic policies of the PBCC. She describes the painful memories of how the cult publicly made fun of her father for a serious medical condition. We talk about religious trauma and the abuse that happens, their lack of sexual education and how much its needed to correct their issues. Cheryl gives us more insight into what happened to her as we bond over shared traumas. The best part is the joy Lane and Pam exude of finding each other.
-Links for insiders -
-Link to Cheryl's story on Blackballed w/James DiFiore -
-Link to Lane's story on Blackballed w/James DiFiore -
-To share your story or be a guest on the show, email info.getalife@proton.me
-Legal email address: stouffvillelegal-gal@protonmail.com
-Leavers GOFUNDME support-
-PayPal link for USA-
-Olive Leaf Network-
-Thinking of Leaving Pamphlet and resources -
-Link to Anchor/Spotify-
-Preston Down Trust Decision-
-Aberdeen incident-
-If we walk in the light letters-
 
 *Every transcript on this site contributes to an expanding collection of survivor accounts and exposes the truth about the PBCC.*
 
