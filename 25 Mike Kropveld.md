@@ -5,11 +5,6 @@
 ## Summary
 
 We sat down with Mike Kropveld from infosecte.org to discuss the help they can offer. Michael Kropveld is Founder and Executive Director of Info-Cult, based in Montreal, Canada. Since the founding of Info-Cult in 1980, Michael has assisted thousands of former members and members of “cults,” “new religious movements” and other groups as well as their families. He has served as an expert witness on cult-related criminal and civil cases and is consulted regularly by mental health professionals and law enforcement agencies. Mike offers us very useful guidance and insight into our goals and his humble and kind personality invites you into why he is so fervently dedicated to helping those that are suffering from groups that no longer serve them.
-Link to his website/charity-
-Link to donations for the charity-
-To share your story or be a guest on the show, contact us at info.getalife@proton.me
-Legal email address: stouffvillelegal-gal@protonmail.com
-Links for insiders -
 
 *Every transcript on this site contributes to an expanding collection of survivor accounts and exposes the truth about the PBCC.*
 
