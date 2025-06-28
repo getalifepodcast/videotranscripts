@@ -5,26 +5,7 @@
 ## Summary
 
 Join us as we dive into Tam Bennett's letter she wrote to the entire PBCC community when she left with her brothers in 2018. This letter addresses all the reasons why we continue doing what we do. We discuss the judgment that is placed on any diversity; the lack of empathy, compassion and kindness towards non-community members, especially those that are non-Caucasian; their fear tactics they use on children; their restriction of information that takes away the right of anyone making informed decisions; the lack of diversity in career choices; the hierarchal system that disadvantages weaker members; the system that disallows any room for creativity and most of all the God-like status they give a man. Tam dives into the racism, sexism, and what it was like for her to grow up in a cult that doesn't embrace gay people. The most rewarding part of this podcast is the shining light her and her brothers can be as she offers hope to those inside that leaving with family is possible. Her message to those inside at the end will leave you with chills from head to toe!
-We end the podcast with a song from another ex-member. Dawson is a 24 year old British/Swiss artist and songwriter and is getting his start in the music world. His songs are very personal and moving and very relatable for the LGBTQI community. He finds comfort and strength in journaling his feelings, emotions, and struggles through writing his own songs. His experience of leaving a controlling cult and plunging into a world where everyone is accepted the way they are inspired his song, Rainbow Lovers. His Spotify and Instagram can be found here
-Spotify -
-Instagram -
-Podcast link for insiders-
-To share your story or be a guest on the show, email info.getalife@proton.me
-Get a Life Paypal donations -
-Get a Life GoFundMe-
-PayPal link for USA-
-Olive Leaf Network-
-Thinking of Leaving Pamphlet and resources -
-Link to Anchor/Spotify-
-Preston Down Trust Decision-
-Aberdeen incident-
-If we walk in the light letters-
-Admin/Legal email address:
-Stouffville-GAL@protonmail.com
-Office address:
-22 Braid Bend
-Stouffville ON
-L4A 1R7
+We end the podcast with a song from another ex-member. Dawson is a 24 year old British/Swiss artist and songwriter and is getting his start in the music world. His songs are very personal and moving and very relatable for the LGBTQI community. He finds comfort and strength in journaling his feelings, emotions, and struggles through writing his own songs. His experience of leaving a controlling cult and plunging into a world where everyone is accepted the way they are inspired his song, Rainbow Lovers. 
 
 *Every transcript on this site contributes to an expanding collection of survivor accounts and exposes the truth about the PBCC.*
 
