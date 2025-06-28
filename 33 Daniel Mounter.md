@@ -5,10 +5,6 @@
 ## Summary
 
 Daniel Mounter’s brothers and sister were unjustly torn taken from their gentle and unworldly parents and fostered out to other families for years, leading to most of them leaving the brethren. A family devastated and shattered by the cruel and bigoted Peterborough priests operating under the direction of Symington and Hales. Daniel remained in the PBCC as long as he could for his parent’s sake, before making a carefully planned exit to Canada. An inspiring and humorous story of escaping one of the grimmest localities in the UK to build a new life in Montreal.
-To share your story or be a guest on the show, contact us at info.getalife@proton.me
-Legal email address: stouffvillelegal-gal@protonmail.com
-Links for insiders -
-Link to Anchor/Spotify-
 
 *Every transcript on this site contributes to an expanding collection of survivor accounts and exposes the truth about the PBCC.*
 
