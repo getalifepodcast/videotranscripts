@@ -9,25 +9,6 @@ To what extent does being born and raised in a high control group such as the PB
 Research provides that evidence. Join us as we talk to Jill Aebi Mytton about new research being carried out through the University of Salford with Dr Rod Dubrow-Marshall and Dr Linda Dubrow-Marshall. Jill explains to us the concept behind this research and how it will be used.
 Completing this questionnaire will be the start of the evidence needed to effect change. Research reports can be used to influence the police, therapists, and other authority bodies to understand the detrimental effects of leaving a cult. Importantly, it can also be used to influence politicians to bring about law changes to inhibit the harm caused by cultic groups.
 So, listen to the podcast and then ask yourself – do you want change enough to take the time to be part of this significant research?
-LINK TO RESEARCH QUESTIONNAIRE-
-Link for insiders -
-To share your story or be a guest on the show, email info.getalife@proton.me
-Link for insiders -
-Get a Life Paypal donations -
-Get a Life GoFundMe-
-PayPal link for USA-
-Olive Leaf Network-
-Thinking of Leaving Pamphlet and resources -
-Link to Anchor/Spotify-
-Preston Down Trust Decision-
-Aberdeen incident-
-If we walk in the light letters-
-Admin/Legal email address:
-Stouffville-GAL@protonmail.com
-Office address:
-22 Braid Bend
-Stouffville ON
-L4A 1R7
 
 *This page is part of the largest public collection of PBCC leaver testimonies and survivor stories.*
 
