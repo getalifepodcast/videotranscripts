@@ -5,18 +5,6 @@
 ## Summary
 
 Imagine the strength of character instilled in this gentleman when at the age of 22 after being told he was of a reprobate mind our guest left the only life, family, and church he had ever known. Jim Clarkson described being ostracized, and isolated after priest’s lips failed to keep knowledge and he was condemned for the feelings he had and life choices he was about to make. Jim took us through his life- the shock and sorrow of being called to his dying mother’s bedside after 20+ years of separation, and yet the faith he has in an all loving, and forgiving God. It was a privilege to have Jim share his advice to any young person in a high control religious group- “seek out a support system.” Don’t settle in an unhappy life situation- surround yourself with people who care and seek to build you up.
-To share your story or be a guest on the show, contact us at info.getalife@proton.me
-Links for insiders -
-To share your story or be a guest on the show, email info.getalife@proton.me
-Legal email address: stouffvillelegal-gal@protonmail.com
-Leavers GOFUNDME support-
-PayPal link for USA-
-Olive Leaf Network-
-Thinking of Leaving Pamphlet and resources -
-Link to Anchor/Spotify-
-Preston Down Trust Decision-
-Aberdeen incident-
-If we walk in the light letters-
 
 *This page is part of the largest public collection of PBCC leaver testimonies and survivor stories.*
 
