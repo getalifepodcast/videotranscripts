@@ -7,23 +7,6 @@
 From a young age, Helen knew she wanted to leave the PBCC or Exclusive Brethren as it was known when she was a child. She also knew doing so would rip apart the tight-knit and loving family she was born into.
 In part one, Helen talks us through how she navigated this dilemma both emotionally and practically culminating in her leaving at the age of 16, including the pressure she was put under through weekly priestly visits. She takes us on a journey of what it was like collecting signatures from the important members inside the sect, including a prominent drawing from James Symington. There's also a shocking story that continues to be the dilemma in this patriarchal cult.
 Join Jacky, Ross, and Andrea as they unpack another survivor story that ends with many, many blessings.
-Link for insiders -
-To share your story or be a guest on the show, email info.getalife@proton.me
-Get a Life Paypal donations -
-Get a Life GoFundMe-
-PayPal link for USA-
-Olive Leaf Network-
-Thinking of Leaving Pamphlet and resources -
-Link to Anchor/Spotify-
-Preston Down Trust Decision-
-Aberdeen incident-
-If we walk in the light letters-
-Admin/Legal email address:
-stouffvillelegal-gal@protonmail.com
-Office address:
-22 Braid Bend
-Stouffville ON
-L4A 1R7
 
 *This transcript is preserved as part of an ongoing public archive of first-person testimonies about the Plymouth Brethren Christian Church (PBCC).*
 
