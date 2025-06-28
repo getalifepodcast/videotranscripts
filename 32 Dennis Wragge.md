@@ -5,11 +5,6 @@
 ## Summary
 
 Dennis Wragge shares his experiences with the so-called "great men" JTJr and JHS. His eyewitness accounts shatter the illusion of perfection that has so been cleverly contrived. You will be shocked by some of the devious and unchristian antics that Dennis is putting on public record for the very first time. We include, at the end of the podcast, an excerpt from JT JR's ministry on his ownership of the women.
-Link to Breaking Brethren Documentary (More info on Dennis' personal story-
-To share your story or be a guest on the show, contact at info.getalife@proton.me
-Legal email address: stouffvillelegal-gal@protonmail.com
-Links for insiders -
-Link to Anchor/Spotify-
 
 *This document forms part of a searchable public testimony archive about life inside—and after—the PBCC.*
 
