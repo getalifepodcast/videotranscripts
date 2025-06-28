@@ -502,7 +502,7 @@ What follows is the audio of that call.
 
 ...overlapping, and it's very strange that these guys picked me out of a hat. Yeah. And they're throwing me obscene... I mean, nobody pays 10 Gs a week to chase down a guy to serve papers.
 
-### [**Dr. Kirat Singh (Voiced by Richard Marsh)**](https://www.youtube.com/watch?v=jODDGSPVGh4&t=5410s)
+### [**Dr. Kirat Singh**](https://www.youtube.com/watch?v=jODDGSPVGh4&t=5410s)
 
 Yeah, yeah.
 
@@ -510,7 +510,7 @@ Yeah, yeah.
 
 And then they sent me an email, and they told me that if I could locate this guy before I do anything or call in a sheriff, they want me to see if I can stake the place out, confiscate his laptop and then call in this number they said they've got a team. So I'm thinking to myself, "What have I gotten myself into here?"
 
-### [**Dr. Kirat Singh (Voiced by Richard Marsh)**](https://www.youtube.com/watch?v=jODDGSPVGh4&t=5431s)
+### [**Dr. Kirat Singh**](https://www.youtube.com/watch?v=jODDGSPVGh4&t=5431s)
 
 Mm.
 
@@ -518,7 +518,7 @@ Mm.
 
 \-hmm you know, these are not these are not normal people. And I'm doing all this research and it leads back to these wacko religious...
 
-### [**Dr. Kirat Singh (Voiced by Richard Marsh)**](https://www.youtube.com/watch?v=jODDGSPVGh4&t=5438s)
+### [**Dr. Kirat Singh**](https://www.youtube.com/watch?v=jODDGSPVGh4&t=5438s)
 
 ...freaks, yes.
 
@@ -534,7 +534,7 @@ Brad Mitchell of Vancouver, Canada, owns Klondike Lubricants and is also a manag
 
 He's got another guy on the phone, and they're asking me all these questions. "Okay, do you think he's in Toronto?" Listen, I don't give a shit, because if he's here, he ought to run, because these guys are fanning out. So wherever he is, get out of Dodge. Get out of Dodge. Is there any way you can tell him? What do these people want from him?
 
-### [**Dr. Kirat Singh (Voiced by Richard Marsh)**](https://www.youtube.com/watch?v=jODDGSPVGh4&t=5502s)
+### [**Dr. Kirat Singh**](https://www.youtube.com/watch?v=jODDGSPVGh4&t=5502s)
 
 Well, I know that they were looking for him because he was excommunicated and making a nuisance of himself to the church.
 
@@ -546,7 +546,7 @@ None of it adds up.
 
 Am I going to be able to shake these people? I mean, I I got a feeling that I mean these these are... this is just not a good vibe. It's none of this is adding up and it just... it's got to be more than just this guy making fun of people or pissing people off. I mean, I'm not getting it. How how big are these people?
 
-### [**Dr. Kirat Singh (Voiced by Richard Marsh)**](https://www.youtube.com/watch?v=jODDGSPVGh4&t=5545s)
+### [**Dr. Kirat Singh**](https://www.youtube.com/watch?v=jODDGSPVGh4&t=5545s)
 
 The church, it's not a huge church but um very rich apparently and I don't know very much...
 
@@ -554,7 +554,7 @@ The church, it's not a huge church but um very rich apparently and I don't know 
 
 There's got to be a way to get it.
 
-### [**Dr. Kirat Singh (Voiced by Richard Marsh)**](https://www.youtube.com/watch?v=jODDGSPVGh4&t=5554s)
+### [**Dr. Kirat Singh**](https://www.youtube.com/watch?v=jODDGSPVGh4&t=5554s)
 
 And so so... So since you spoke to me the other day, they've been contacting you again?
 
@@ -564,7 +564,7 @@ Yeah, they're telling me that I've been engaged for the job that I took to depos
 
 And I don't, I mean, what they're basically asking me to do is illegal.
 
-### [**Dr. Kirat Singh (Voiced by Richard Marsh)**](https://www.youtube.com/watch?v=jODDGSPVGh4&t=5575s)
+### [**Dr. Kirat Singh**](https://www.youtube.com/watch?v=jODDGSPVGh4&t=5575s)
 
 Oh, yeah, there's lots of things that they would do that is illegal.
 
@@ -572,7 +572,7 @@ Oh, yeah, there's lots of things that they would do that is illegal.
 
 Yeah, but it's more than just illegal. They're talking about, I mean, they're talking about kidnapping.
 
-### [**Dr. Kirat Singh (Voiced by Richard Marsh)**](https://www.youtube.com/watch?v=jODDGSPVGh4&t=5583s)
+### [**Dr. Kirat Singh**](https://www.youtube.com/watch?v=jODDGSPVGh4&t=5583s)
 
 Mm-hmm. Are they specifically explicitly using that word?
 
@@ -582,7 +582,7 @@ Not that word, but they sure as hell danced around it. And they're offering all 
 
 I don't understand, but they got all this guy's medical documentation. They got everything. They got everything on this guy's life. Stuff that's supposed to be sealed.
 
-### [**Dr. Kirat Singh (Voiced by Richard Marsh)**](https://www.youtube.com/watch?v=jODDGSPVGh4&t=5604s)
+### [**Dr. Kirat Singh**](https://www.youtube.com/watch?v=jODDGSPVGh4&t=5604s)
 
 Sealed. Mm-hmm. That's heavy duty.
 
@@ -590,7 +590,7 @@ Sealed. Mm-hmm. That's heavy duty.
 
 Yeah, yeah.
 
-### [**Dr. Kirat Singh (Voiced by Richard Marsh)**](https://www.youtube.com/watch?v=jODDGSPVGh4&t=5608s)
+### [**Dr. Kirat Singh**](https://www.youtube.com/watch?v=jODDGSPVGh4&t=5608s)
 
 I mean, how much are they offering you, you know, um...
 
@@ -606,7 +606,7 @@ Why doesn't he go to law enforcement or something? There's got to be somewhere h
 
 I don't. I know it sounds good. I'm sorry. I'm just, look, these people are giving me the big time creeps.
 
-### [**Dr. Kirat Singh (Voiced by Richard Marsh)**](https://www.youtube.com/watch?v=jODDGSPVGh4&t=5654s)
+### [**Dr. Kirat Singh**](https://www.youtube.com/watch?v=jODDGSPVGh4&t=5654s)
 
 Creeps.
 
@@ -614,7 +614,7 @@ Creeps.
 
 Big time creeps. And they're having people reach out to me that are way too big on the chain. You know, to try to change my mind. I don't need to be taking calls from people in Alberta who sit in the premier's office. You know what I'm saying?
 
-### [**Dr. Kirat Singh (Voiced by Richard Marsh)**](https://www.youtube.com/watch?v=jODDGSPVGh4&t=5668s)
+### [**Dr. Kirat Singh**](https://www.youtube.com/watch?v=jODDGSPVGh4&t=5668s)
 
 Yeah, yeah, yeah. So who is this Alan Hallman? Can you remind me? Who was that?
 
@@ -622,7 +622,7 @@ Yeah, yeah, yeah. So who is this Alan Hallman? Can you remind me? Who was that?
 
 This Hallman guy was a political organizer for the Premier. He used to be his bogeyman.
 
-### [**Dr. Kirat Singh (Voiced by Richard Marsh)**](https://www.youtube.com/watch?v=jODDGSPVGh4&t=5681s)
+### [**Dr. Kirat Singh**](https://www.youtube.com/watch?v=jODDGSPVGh4&t=5681s)
 
 Okay, okay.
 
@@ -636,7 +636,7 @@ The wealthy PBCC, while not allowing their members to vote, has long been known 
 
 Right. But it's something going on here, man.
 
-### [**Dr. Kirat Singh (Voiced by Richard Marsh)**](https://www.youtube.com/watch?v=jODDGSPVGh4&t=5735s)
+### [**Dr. Kirat Singh**](https://www.youtube.com/watch?v=jODDGSPVGh4&t=5735s)
 
 So they gave you a check?
 
@@ -644,7 +644,7 @@ So they gave you a check?
 
 No, they didn't give me no check. They're sending me Interact V transfers five grand at a time from a place called Klondike Mules and another place called Tilsonburg Tube.
 
-### [**Dr. Kirat Singh (Voiced by Richard Marsh)**](https://www.youtube.com/watch?v=jODDGSPVGh4&t=5746s)
+### [**Dr. Kirat Singh**](https://www.youtube.com/watch?v=jODDGSPVGh4&t=5746s)
 
 Tilsonburg Tube, right?
 
@@ -668,7 +668,7 @@ I'm really, really freaked out about this.
 
 ...today and if he's ever heard of this guy named Brad Mitchell. Because that guy is really giving me the creeps.
 
-### [**Dr. Kirat Singh (Voiced by Richard Marsh)**](https://www.youtube.com/watch?v=jODDGSPVGh4&t=5800s)
+### [**Dr. Kirat Singh**](https://www.youtube.com/watch?v=jODDGSPVGh4&t=5800s)
 
 What specifically is he saying to you about?
 
@@ -676,7 +676,7 @@ What specifically is he saying to you about?
 
 It's how he's saying. The guy, I thought these were religious people, this guy is talking about his wife... I'll give you an example. This is not my words, okay, I'm going to give you a verbatim. He's telling me she's a "coon". And then he's making remarks about about Jews and he's making remarks about this guy's a "packy". This is how he talks.
 
-### [**Dr. Kirat Singh (Voiced by Richard Marsh)**](https://www.youtube.com/watch?v=jODDGSPVGh4&t=5821s)
+### [**Dr. Kirat Singh**](https://www.youtube.com/watch?v=jODDGSPVGh4&t=5821s)
 
 Ok, yeah, thanks.
 
@@ -686,7 +686,7 @@ Ok, yeah, thanks.
 
 I'm just, you know, I'm ducking these guys' calls and I don't want the same treatment for any religious loonies coming by my place of business and shit. I can't, I don't need that stuff.
 
-### [**Dr. Kirat Singh (Voiced by Richard Marsh)**](https://www.youtube.com/watch?v=jODDGSPVGh4&t=5860s)
+### [**Dr. Kirat Singh**](https://www.youtube.com/watch?v=jODDGSPVGh4&t=5860s)
 
 Yeah, yeah. Hmm. Ok.
 
@@ -694,7 +694,7 @@ Yeah, yeah. Hmm. Ok.
 
 Just be careful.
 
-### [**Dr. Kirat Singh (Voiced by Richard Marsh)**](https://www.youtube.com/watch?v=jODDGSPVGh4&t=5867s)
+### [**Dr. Kirat Singh**](https://www.youtube.com/watch?v=jODDGSPVGh4&t=5867s)
 
 Well, thanks. Thanks for your heads up. Bye.
 
