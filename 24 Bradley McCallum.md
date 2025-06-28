@@ -5,10 +5,6 @@
 ## Summary
 
 Join us and our special guest, Bradley McCallum as we walk through his attempts to leave the PBCC.  To try to prevent Bradley leaving, the PBCC followed him all the way to Hyde Park in London and confronted him- telling him he was mental.  They flew him back home where a Brethren doctor injected him with powerful sedative drugs. He still has no idea what the medication was!! He takes us through what happened to his grandfather after he confronted JT JR being caught red handed in bed with another sister of the PBCC. This authentic recounting of Aberdeen fills in missing pieces that so many of us needed. A story so shocking and yet so typical of this cultic group it left us reeling!!
-To share your story or be a guest on the show, contact us at info.getalife@proton.me
-Legal email address: stouffvillelegal-gal@protonmail.com
-Links for insiders -
-Link to Anchor/Spotify-
 
 *Every transcript on this site contributes to an expanding collection of survivor accounts and exposes the truth about the PBCC.*
 
