@@ -5,13 +5,7 @@
 ## Summary
 
 TRIGGER WARNING This podcast contains discussions about sexual abuse and suicide. Viewer discretion is advised.
-Join us as we listen to Gilli’s harrowing story of sexual abuse in the PBCC, and the subsequent mental health problems he struggled with. The detail with which Gilli describes the feeling of worthlessness resonates with many of us who have escaped the PBCC. The candid and calm manner in which Gilli walks us through these experiences and how he has sought help and managed the impact of them on his life is an inspiration to anyone who has or is struggling with abuse or suicidal thoughts. Gilli's success story shows the impeccable determination and passion we all have used and needed to get back up and take back our lives from the abuse in the PBCC.  This is an incredible story for anyone wanting to finally voice the abuse they endured or are currently are enduring. For those needing assistance in the UK please contact Samaritans UK - 24 hours a day/ 365 days per year
-Call: 116123
-Email: jo@samaritans.org
-To share your story or be a guest on the show, contact us at info.getalife@proton.me
-Legal email address: stouffvillelegal-gal@protonmail.com
-Links for insiders -
-Link to Anchor/Spotify-
+Join us as we listen to Gilli’s harrowing story of sexual abuse in the PBCC, and the subsequent mental health problems he struggled with. The detail with which Gilli describes the feeling of worthlessness resonates with many of us who have escaped the PBCC. The candid and calm manner in which Gilli walks us through these experiences and how he has sought help and managed the impact of them on his life is an inspiration to anyone who has or is struggling with abuse or suicidal thoughts. Gilli's success story shows the impeccable determination and passion we all have used and needed to get back up and take back our lives from the abuse in the PBCC.  This is an incredible story for anyone wanting to finally voice the abuse they endured or are currently are enduring. 
 
 *Every transcript on this site contributes to an expanding collection of survivor accounts and exposes the truth about the PBCC.*
 
