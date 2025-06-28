@@ -5,17 +5,6 @@
 ## Summary
 
 Braden fills us in on the antics and activities of the PBCC in New Zealand over the past years. His humour helps us digest the ridiculous behaviors of the brethren's political affairs. He gives us his opinion on the alleged PBCC takedown of Justin Trudeau. He walks us through his struggles with mental health inside the PBCC and his visits to the brethren approved therapist Dr McPhillips who we find out took his own life. Braden explains the famous story of being told to drink cyanide or eat rat poison. Braden Simmons helps us dissect the RRT Charity set up by Bruce and his minions as a tax shelter and the salvation of the group’s charity tax status. When you strip off the PBCC façade and realize it’s nothing more than another antic to keep money in Bruce’s pockets you will share our disgust! We discuss the coercive control used on members in every aspect of their lives, the political deception hidden from many of the members and the new Strive 23 program the PBCC are launching in hopes of generating an extra 90 million dollars to line the already bursting church coffers.
-Links for insiders -
-To share your story or be a guest on the show, email info.getalife@proton.me
-Legal email address: stouffvillelegal-gal@protonmail.com
-Leavers GOFUNDME support-
-PayPal link for USA-
-Olive Leaf Network-
-Thinking of Leaving Pamphlet and resources -
-Link to Anchor/Spotify-
-Preston Down Trust Decision-
-Aberdeen incident-
-If we walk in the light letters-
 
 *Every transcript on this site contributes to an expanding collection of survivor accounts and exposes the truth about the PBCC.*
 
