@@ -9,12 +9,6 @@ We have long been aware  of the extensive abuse of prescription drugs by the bre
 Could the brethren sink any lower?
 Yes, they can and did. Get-a-Life hears the story of Todd Coulter, who was “prescribed” Cyprostat for years, at his own expense, by Detroit brethren doctor Phil Truan. The doctor admitted that the drug was illegal in the USA, and arranged to have it shipped direct to Todd from the UK. After years of obediently taking the drug, Todd developed painful lumps in his breasts, requiring expensive surgery.
 What was the justidication for this drastic and illegal medical intervention? Listen to this shocking episode to find that out – and much, much more.
-Contact us at info.getalife@proton.me for information on how you can come on and share your story
-Legal email address: stouffvillelegal-gal@protonmail.com
-Links for insiders -
-Olive Leaf Network-
-Thinking of Leaving Phamplet and resources -
-Link to Anchor/Spotify-
 
 *This transcript is preserved as part of an ongoing public archive of first-person testimonies about the Plymouth Brethren Christian Church (PBCC).*
 
