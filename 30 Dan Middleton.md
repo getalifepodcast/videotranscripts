@@ -5,10 +5,6 @@
 ## Summary
 
 Join Dan Middleton as he takes us on a refreshing journey of his travels across the world. His presentation is sure to inspire anyone have doubts about whether they can make it out in the "world". From borrowing $20 and taking a leap of faith to living in Thailand with his wife and step children, Dan's story makes you want to pack your bags and explore what the world has to offer. This podcast is filled with inspiration and encouragement for those of us that have left and for those that are thinking of leaving.
-To share your story or be a guest on the show, contact us at info.getalife@proton.me
-Legal email address: stouffvillelegal-gal@protonmail.com
-Links for insiders -
-Link to Anchor/Spotify-
 
 *Every transcript on this site contributes to an expanding collection of survivor accounts and exposes the truth about the PBCC.*
 
