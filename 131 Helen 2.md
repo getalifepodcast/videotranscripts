@@ -5,23 +5,6 @@
 ## Summary
 
 Join us for a deeply moving episode as we continue Helen's incredible journey in part 2. Helen dives into her career and how she made sure she had a path to do what she was passionate about.  Helen shares the emotional challenges faced upon returning home during her mother's final days. Helen was privileged enough to be up front and center during her mother's illness and even attended a meeting where she recounts how she was able to go back inside. She wasn't allowed through the front door and wasn't allowed to sit with everyone, but she explains her reasoning for sitting through another boring meeting. It was a roller coaster of emotions trying to build a relationship with her family still inside the cult. At times, these interactions were positive, and other times, the interactions were extremely painful.  But Helen persevered and has great advice on how to manage these circumstances we all find ourselves in.
-Link for insiders -
-To share your story or be a guest on the show, email info.getalife@proton.me
-Get a Life Paypal donations -
-Get a Life GoFundMe-
-PayPal link for USA-
-Olive Leaf Network-
-Thinking of Leaving Pamphlet and resources -
-Link to Anchor/Spotify-
-Preston Down Trust Decision-
-Aberdeen incident-
-If we walk in the light letters-
-Admin/Legal email address:
-stouffvillelegal-gal@protonmail.com
-Office address:
-22 Braid Bend
-Stouffville ON
-L4A 1R7
 
 *This document forms part of a searchable public testimony archive about life inside—and after—the PBCC.*
 
