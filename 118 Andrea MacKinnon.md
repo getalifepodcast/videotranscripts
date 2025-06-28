@@ -5,24 +5,6 @@
 ## Summary
 
 Join us as we celebrate a one year celebration of freedom! Lyle and Andrea and their 2 beautiful daughters made it out of the Plymouth Brethren Christian Church intact and are thriving in every way that is possible. Andrea takes us back to the day they left and walks us through what that first week was like. She opens up about the challenges of transitioning to life outside the community, emphasizing the importance of prioritizing emotional well-being and safety for her children. From confronting hurtful messages to the joy of newfound freedom and finding supportive connections, Andrea's story is a testament to resilience and the pursuit of happiness. They are the storybook we all want to read about and even though the heartache of the family they had to leave behind is there, this will inspire those inside to take that leap of faith and own what's rightfully theirs - FREEDOM! We end this podcast with a very empowering message.
-Link for insiders -
-Link to Out of Faith Memoir-
-To share your story or be a guest on the show, email info.getalife@proton.me
-Get a Life Paypal donations -
-Get a Life GoFundMe-
-PayPal link for USA-
-Olive Leaf Network-
-Thinking of Leaving Pamphlet and resources -
-Link to Anchor/Spotify-
-Preston Down Trust Decision-
-Aberdeen incident-
-If we walk in the light letters-
-Admin/Legal email address:
-Stouffville-GAL@protonmail.com
-Office address:
-22 Braid Bend
-Stouffville ON
-L4A 1R7
 
 *Every transcript on this site contributes to an expanding collection of survivor accounts and exposes the truth about the PBCC.*
 
