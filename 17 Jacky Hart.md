@@ -6,9 +6,6 @@
 
 Join us and our special guest Jacky Hart as we discuss the Charity Commission and the time period when the PBCC lost their charitable tax status! Could it be that the doubleminded PBCC filed a report agreeing that families had the 100% right to decide whether or not to socialize with their ex-pb families? But then why would that not happen? Oh right? That’s because it’s not actually the truth!!
 Here is the link to the ‘Faith in Practice’ document that explains all the concerns the charities commission had with the brethren and what the brethren said they would do about it-
-To share your story or be a guest on the show, contact us at info.getalife@proton.me
-Legal email address: stouffvillelegal-gal@protonmail.com
-Links for insiders -
 
 *This page is part of the largest public collection of PBCC leaver testimonies and survivor stories.*
 
