@@ -5,12 +5,6 @@
 ## Summary
 
 Listen to how our guest John Spinks decided as a young man to make his escape from the PBCC cult and what his plan for leaving looked like.  John reminded us their are over 40,000 different religions worldwide, and each one of them believes they are the "chosen" one.  So that means if you belong to a religion, you have approximately 40,000 to 1 chances of being in the "Chosen" one!  John explains how his experience led him to write a book about it years later and the emotional journey that writing the book took him on.  He received strict orders from inside the church not to write his book, which didn't slow him down, not even one bit!!
-Link to John Spinks Youtube channel-
-Link to John Spinks book Cult Escape  and website-
-To share your story or be a guest on the show, contact us at info.getalife@proton.me
-Legal email address: stouffvillelegal-gal@protonmail.com
-Links for insiders -
-Link to Anchor/Spotify-
 
 *This document forms part of a searchable public testimony archive about life inside—and after—the PBCC.*
 
