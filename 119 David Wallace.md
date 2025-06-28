@@ -11,17 +11,6 @@ Meet Gerald Chipeur, KC, Counsel to the Conservative Party of Canada, and the PB
 “Extraordinary claims require extraordinary evidence” - and extraordinary evidence is exactly what we give you - a score or more of emails, recordings and text messages between the PBCC priesthood, and their operatives from the underworld, extracted from the famous Klondike papers and published here for the first time.
 And our special guest today? No less than David Wallace, political ratf@cker turned whistleblower, without whom Richard would probably be dead, and “Get-a-Life” would never have been conceived.
 And there’s more…so much more…but watch, listen, and see with your own eyes the damning evidence from the Cult of Corruption – Bruce D Hales’ Plymouth Brethren Christian Church
-Link for insiders -
-Wikipedia reference to Klondike Papers-
-Breaking Brethren documentary-
-Cheryl's story on Blackballed-
-Blackballed podcasts with Richard Marsh-
-Admin/Legal email address:
-Stouffville-GAL@protonmail.com
-Office address:
-22 Braid Bend
-Stouffville ON
-L4A 1R7
 
 *Every transcript on this site contributes to an expanding collection of survivor accounts and exposes the truth about the PBCC.*
 
