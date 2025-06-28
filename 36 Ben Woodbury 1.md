@@ -6,11 +6,6 @@
 
 Ben Woodbury from Windsor, Australia has an incredible and damning story about his life in and out of the PBCC. He also has a mind-blowing talent for putting his experiences and emotions into speech. So many things he said touched a deep chord with us, as he gave expression to experiences that we all shared but had been unable to form into words.
 Ben recounts some horrific and traumatic happenings, but his smile, humour  and personality are living proof that he is in a far better place than the narrow-minded and brainwashed bullies that tried for so long to drag him down. Since leaving, he has gone from success to success and he shows us amazing photos of himself as a………...but you will have to watch it for yourself to find out what that was!
-Link to articles on Ben-
-To share your story or be a guest on the show, contact us at info.getalife@proton.me
-Legal email address: stouffvillelegal-gal@protonmail.com
-Links for insiders -
-Link to Anchor/Spotify-
 
 *Every transcript on this site contributes to an expanding collection of survivor accounts and exposes the truth about the PBCC.*
 
