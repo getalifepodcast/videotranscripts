@@ -9,22 +9,6 @@ The Exclusive Brethren’s Leader, Bruce Hales, justifies his multi-million doll
 “The Lord caused the Egyptians to look favorably on the Israelites, and they gave the Israelites whatever they asked for. So they stripped the Egyptians of their wealth!”
 In this short episode, we explain exactly how and why Bruce Hales and his family embezzled tens of millions of dollars from both his flock and the government by a clever combination of fraud, tax evasion and laundering. We present some very interesting “smoking gun” emails from former school trustee Steve Simmons's archives that spell out how the Plymouth Brethren Christian Church’s international school system, OneSchool Global, has become a key part of a money-laundering scheme that siphons stolen charity funds from 123 campuses worldwide, and funnels them to the Sydney, Australia HQ of the cult.
 And we show some actual sections from Bruce Hales’s published ministry where he justifies his campaign of pillage and plunder, saying “It’s ours anyway – we just have to take it from them”
-Links for insiders -
-To share your story or be a guest on the show, email info.getalife@proton.me
-Leavers GOFUNDME support -
-PayPal link for USA-
-Olive Leaf Network-
-Thinking of Leaving Pamphlet and resources -
-Link to Anchor/Spotify-
-Preston Down Trust Decision-
-Aberdeen incident-
-If we walk in the light letters-
-Admin/Legal email address:
-Stouffville-GAL@protonmail.com
-Office address:
-22 Braid Bend
-Stouffville ON
-L4A 1R7
 
 *This document forms part of a searchable public testimony archive about life inside—and after—the PBCC.*
 
