@@ -5,10 +5,6 @@
 ## Summary
 
 We knew this story had to be told to inspire those marriages that get separated by the indoctrination of the PBCC. Ros show us that it is possible to break through the brainwashing of the PBCC when a spouse decides to leave or gets excommunicated. Join Ros as she recounts her attempts in leaving to rejoin her husband and how she finally got free. Listening to how she was labelled psychotic and had her children taken away is heart wrenching and shows how the gaslighting of the PBCC can make a mother question everything. Thankfully, Ros got some help from within the school and got free. Unfortunately, the person who helped her was suspended. We hear how much her child was bullied at the PBCC school and how free and happy her children are now. We hope this story really shows that ALL spouses can break free of the bondage the PBCC put on marriages when they want them to stay separated.
-Link to the news article that was written anonymously regarding Ros and her family-
-Links for insiders -
-To share your story or be a guest on the show, contact us at info.getalife@proton.me
-Legal email address: stouffvillelegal-gal@protonmail.com
 
 *This document forms part of a searchable public testimony archive about life inside—and after—the PBCC.*
 
