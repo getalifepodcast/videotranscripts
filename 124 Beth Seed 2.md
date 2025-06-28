@@ -8,31 +8,6 @@ After all the Neche articles, Beth Seed was inspired to continue her PBCC facts 
 You'll hear about Beth's insightful investigation into liquor licenses and financial practices within their store known as Campus and Co. Plus, she shares her experiences with locals, salespeople recognizing her, and the challenges of being labeled an apostate by the Brethren.
 Get ready to explore the evolving education system within the Brethren community, the controversial practices of the PBCC, and even a peek into the inner workings of health insurance in connection to the group. We'll also discuss the personal toll of leaving the Brethren, the impact of confinement on families, and the emotional complexity of seeking closure and reconnection.
 So, join us as we unpack Beth Seed's thought-provoking revelations and poignant reflections, all in the spirit of offering support and understanding to those affected by high-demand religious groups. This episode promises to deliver insightful perspectives and valuable insights and a few laughs along the way! All links to the Neche documentary and news articles are included below.
-Podcast link for insiders-
-Article Links-
-Article 1-
-Article 2-
-Article 3-
-Article 4-
-Article 5-
-Link to documentary-
-Link to Beth’s TikTok:
-To share your story or be a guest on the show, email info.getalife@proton.me
-Get a Life Paypal donations -
-Get a Life GoFundMe-
-PayPal link for USA-
-Olive Leaf Network-
-Thinking of Leaving Pamphlet and resources -
-Link to Anchor/Spotify-
-Preston Down Trust Decision-
-Aberdeen incident-
-If we walk in the light letters-
-Admin/Legal email address:
-Stouffville-GAL@protonmail.com
-Office address:
-22 Braid Bend
-Stouffville ON
-L4A 1R7
 
 *This transcript is preserved as part of an ongoing public archive of first-person testimonies about the Plymouth Brethren Christian Church (PBCC).*
 
