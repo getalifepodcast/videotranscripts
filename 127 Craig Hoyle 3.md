@@ -24,7 +24,7 @@ Join our Ex-Cult conversations.
 
 You matter, and so does your story.
 
-### [**Cheryl Bawtinheimer**](https://www.google.com/search?q=httphttps://www.youtube.com/watch%3Fv%3DfIvmlKn3k5M%26t%3D71s&authuser=1)
+### [**Cheryl Bawtinheimer**](httphttps://www.youtube.com/watch?v=fIvmlKn3k5M&t=71s)
 
 Hi everyone\! Welcome back to Get A Life for Part 3 of Craig Hoyle's book, Excommunicated. I'm Cheryl, and joining me again today is Craig and Lindy. We are all ex-members of the Exclusive Brethren, now known as the Plymouth Brethren Christian Church. Welcome Craig and Lindy.
 
